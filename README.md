@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Chiragdeep Verma</h1>
 <h3 align="center">Undergrad IT Student- Passionate About- Machine learning|Computer Vision|NLP|AI|Web Development</h3>
 
-- 🔭 I’m currently working on **Deep Learning | Computer Vision**
+- 🔭 I’m currently working on **Deep Learning | Computer Vision | Web Development**
 
 - 🌱 I’m currently learning **Generative AI and NLP**
 
