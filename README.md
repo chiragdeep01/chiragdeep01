@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **chirag20028@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/u/1/folders/11_NjYbESJGgTcbJ8yPy-SOsEFrqIEuBg](https://drive.google.com/drive/u/1/folders/11_NjYbESJGgTcbJ8yPy-SOsEFrqIEuBg)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1LxtCASrfvUK8sfDopFq3kozcRdrseg9M/view?usp=sharing](https://drive.google.com/file/d/1LxtCASrfvUK8sfDopFq3kozcRdrseg9M/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
